@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on Java Projects to increase my knowledge
 - 📫 You can reach me on 16cjegbunike@gmail.com for some collabs
 - 🌍  I'm based in Canada
-- 🔭 I’m currently improving on My Portfolio
+- 🔭 I’m currently improving my Portfolio
 - 🤝  I'm open to collaborating on Projects
 
 
